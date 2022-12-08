@@ -1,1 +1,6 @@
-# Understanding_Effects_of_Climate_Change
+Carolina Bellani
+Ojus Sindwani
+Sindhura Uppalapati
+Vibhas Goel
+XinyuanXU
+Yuhan Zu
